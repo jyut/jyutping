@@ -1,4 +1,4 @@
-about
+About
 
 JyùtDùk ge Nàaphâam！粵獨嘅吶喊！
 
@@ -35,16 +35,28 @@ Ngódèi zöeng hái DàaiJyùt Cungsän Häauhõeng Däksîng gê TungGũ！
 我哋將脫支獨立！我哋將去支那化！我哋將喺大粵重新敲響得勝嘅銅鼓！
 
 第一網誌 https://jyutleijyutdim.wordpress.com/
+
 第二網誌 https://cantonia.wordpress.com/
+
 第三網誌 https://jyutleijyutdim.blogspot.com/
+
 第四網誌 https://jyutleijyutdim.tumblr.com/
+
 第五網誌 http://jyutleijyutdim.freeforums.org/
+
 第六網誌 http://daaijyut.freeforums.org/
-Facebook專頁 https://www.facebook.com/Jy%C3%B9td%C3% ... 098939666/
+
+Facebook專頁 https://www.facebook.com/Jy%C3%B9td%C3%B9k-g%C3%AA-N%C3%A0aph%C3%A2am-%E7%B2%B5%E7%8D%A8%E5%98%85%E5%90%B6%E5%96%8A-Cantonese-Independent-Voice-1644182098939666/
+
 Twitter專頁 https://twitter.com/jyutleijyutdim/
+
 Google+專頁 https://plus.google.com/100100487372872581362/posts/
+
 Youtube專頁 https://www.youtube.com/user/CantonCantonia/feed/
+
 Linkedin專頁 https://www.linkedin.com/company/11179022/
+
 Flickr專頁 https://www.flickr.com/photos/jyutleijyutdim/
+
 Pinterest專頁 https://www.pinterest.com/jyutleijyutdim/
 
